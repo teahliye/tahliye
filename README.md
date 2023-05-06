@@ -1,0 +1,2 @@
+# tahliye
+öyleli
